@@ -1,16 +1,7 @@
-##🧠 🧠  HEY AM TEDDYDAN 
-🧩 🧩 🔧🔧<br/>
-FULL TIME DATA SCIENTIST,ANALYSIST AND A WEB ABPPLICATION DEVELOPER BOTH FRONTEND AND BACKEND🧠🧠🧠<br/>
--🤖 I STUDIED AT JOMO KENYATTA UNIVERISITY OF AGRICULTURE AND TECHNOLOGY⚙️🕸️<br/>
--CURRENTLY DOING PROJECTS FOR COMPANYIES AND BUSSINESSES USING SUPABASE AS MY FAVOURITE DATABASE FOR POSTGRES SQL<br/>
--📡 ALSO CREATE THEMED DESKTOP APPLICATION TO STAY CONSISTENT🌐 🌐 <br/>
--💻💻I HAVE VIDEOS OF MOST OF MY PROJECTS IN INSTARGRAM AND TIKTOK BUT YET TO CREATE A YOUTUBE CHANNEL<br/>
- (Laptop)
+🧠 🧠 hey am teddydan 
+🧩 🧩 🔧🔧
+full time data scientist, analysist and a web abpplication developer both frontend and backend 🧠🧠🧠
+-🤖 i studied at jomo kenyatta univerisity of agriculture and technology⚙️🕸️
+-💻💻i have videos of most of my projects in instargram and tiktok but yet to create a youtube channel
+(laptop)
 🔧🔧🔧🔧🧠🧠🧠
-
-
-
-
-
-
-
